@@ -1,5 +1,5 @@
-Here you can say lots of fun things about your site.
+Passionate about technology and business process improvement using IT as a tool and enabler. I’m constantly looking to help organizations that I'm part of become more efficient through getting involved in strategic discussions, where I can use my know-how and experience acquired through my career in finding solutions and the best choices.
 
-Maybe say a some things about yourself.
+I’ve always been a key member in every team that I worked, not only by standing up when challenges arrive but also helping my teammates in their projects and activities. Now as Manager, I can be more focused in helping my college’s improvements and careers, more available to be involved in solutions for every problem/project, as well as playing an important role discussing innovative and creative ways to generate value for the company with other leaders.
 
-Or maybe what you plan to blog about.
+As an Analyst, I was directly involved in 3 ERP migrations and many systems implantation, where I had the opportunity to develop and improve business knowledge and technical skills, including but not only data migration, data analysis, system integration, personalization and development specification.
